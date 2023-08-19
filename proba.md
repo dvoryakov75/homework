@@ -1,7 +1,0 @@
----  
-share: true  
----
-
-
-lkkkkkmm
-ghbnjjjnnhjjjkjhh
