@@ -1,7 +1,5 @@
 # homework
 netology homework
 
-123444444
-yyttt
-tyuyh
-hhjjjk
+
+111111111111111
